@@ -1,2 +1,2 @@
-# CL_New_Employee_Traning_2023
+# CL_New_Employee_Training_2023
 研修資料
